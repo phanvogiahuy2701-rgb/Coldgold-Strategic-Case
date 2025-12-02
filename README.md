@@ -41,7 +41,6 @@ ColdGold Foods was struggling with low market penetration, thin profitability, a
 - Contributed ideas on how to use higher plant utilization and basic cost controls to support the profitability target.
 - Designed and formatted the PowerPoint presentation (slide structure, key figures, and visuals) so that the recommendations were easy to follow.
 - Co-presented the case to the judging panel, explaining parts of the analysis and answering questions during the Q&A.
-- Worked with a multicultural team and delivered the full solution under a strict one-day deadline, with the project reaching the semifinal round.
 
 ---
 
