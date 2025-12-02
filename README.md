@@ -27,5 +27,31 @@ ColdGold Foods was struggling with low market penetration, thin profitability, a
 
 - Reviewed the company’s current market penetration, profitability, and capacity usage.
 - Mapped how the $16M marketing budget was spread across 18 cities and identified dilution effects.
-- Analyzed the roles of Retail and B2B channels and the causes of internal
+- Analyzed the roles of Retail and B2B channels and the causes of internal conflict.
+- Considered options for focusing on 3–5 high-potential cities and strengthening key retail partners.
+- Looked at opportunities to increase plant utilization and reduce costs through leaner operations.
+- Structured all findings and recommendations into a clear, competition-ready slide deck.
 
+---
+
+## My Contribution
+
+- Helped define a simple storyline that focused on “doing fewer things better” instead of spreading resources across too many cities.
+- Suggested concentrating marketing spend on a small set of core cities and separating the main responsibilities of Retail and B2B to reduce overlap and conflict.
+- Contributed ideas on how to use higher plant utilization and basic cost controls to support the profitability target.
+- Designed and formatted the PowerPoint presentation (slide structure, key figures, and visuals) so that the recommendations were easy to follow.
+- Co-presented the case to the judging panel, explaining parts of the analysis and answering questions during the Q&A.
+- Worked with a multicultural team and delivered the full solution under a strict one-day deadline, with the project reaching the semifinal round.
+
+---
+
+## Skills
+
+- Problem-solving and structured thinking  
+- Market and channel analysis  
+- Basic financial and operational reasoning  
+- Multicultural teamwork and communication  
+- Working under time pressure (one-day case competition)  
+- PowerPoint slide design and business storytelling  
+- Public speaking and presenting to a panel  
+- Critical thinking and asking clarifying questions
